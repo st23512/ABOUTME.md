@@ -18,4 +18,4 @@ But i don't dislike to pass some time with my siblings
 ## My Future Goals
 I would like to end the year with many credits and learn many intersting things
 
-And i want to have a stable place of work and manage my free time 
+And i want to have a stable work and manage my free time 
